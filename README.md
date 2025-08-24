@@ -14,7 +14,7 @@ I'm currently learning and exploring:
 - Improve my problem-solving and algorithm skills
 
 ## 📫 Connect with me:
-- [GitHub Profile](https://github.com/AsadbekTolipov)
+- [GitHub Profile](https://github.com/AsadbekDEV)
 - (Add LinkedIn if you have one)
 
 ---
