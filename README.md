@@ -15,7 +15,7 @@ I'm currently learning and exploring:
 
 ## 📫 Connect with me:
 - [GitHub Profile](https://github.com/MrTolipov)
-- [Telegram](https://t.me/Asadbek_Tolipov)
+- [Telegram Profile](https://t.me/Tolipov_Asadbek)
 
 ---
 
